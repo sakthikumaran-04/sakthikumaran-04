@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **sakthikumaranofficial@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1FUbhRxJrmdinbJ1CxUzzjsEYjfpW8Clz/view?usp=drivesdk](https://drive.google.com/file/d/1FUbhRxJrmdinbJ1CxUzzjsEYjfpW8Clz/view?usp=drivesdk)
+- 📄 Know about my experiences [Go!](https://drive.google.com/file/d/1FUbhRxJrmdinbJ1CxUzzjsEYjfpW8Clz/view?usp=drivesdk)
 
 - ⚡ Fun fact **I break code, not hearts! 💔💻**
 
